@@ -36,6 +36,15 @@
 🦭💬 Users need to understand there is a weight between the conveniences and security, and in application solution design they need to ```weight of convenience``` use ( by programmer and system integrators ) and security because of protection and steps to access secured databases records are also protected from external but sometimes it slow down project because we need to build the same technology matching in case of they are not the same with in standard or need organize of the ```same tools when the project initial``` 👤💬 ```Into this part integration test and test system environments had perform test run before solution confirm and complete the drawing diagrams``` </br>
 
 <p align="center" width="100%">
+    <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/image12.jpg"> </br>
+    <b> I promise to save when I earn some money when grow up </b> </br>
+    <b> * Picture from the Internet </b>
+</p>
+
+🦤💬 There are systems to respond with ```high accuracy and system design``` to create instant actions, mapping to the known system is a database query and node.js application routes in Apache Spark, Load balancing, and Nginx proxy server. By ```application workflow logic``` it needs to complete the process that may contain customer information, working on the ```application tracking```, ```verification results```, and ```customer responses``` and ```feedback with the high accuracy as possible```. This logic is simple and powerful when external development methods interrupt this process ( mostly random and finding possible attached points to create some benefits for some user or group of users ) </br>
+💃( 👩‍🏫 )💬 That is because it is true logic and we do not modify the true logic or we need to rebuild them, development of ```protection responsive actions``` baed on this scenario is the zoning of ```sensitive information services``` inside the organization and ```routing services``` and ```instant response service``` to outside of the organization as attaches points with ```multiple secured communication methods```. By the ```business requirements``` expansion of branches, applications and auto-machine they develop of business competitive when also develop of ```secured communications```. </br>
+
+<p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/Bahaviour%20scenario.png"> </br>
     <b> Known environment scenario </b>
 </p>
