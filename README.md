@@ -69,5 +69,5 @@
     <b> Natural encrypted communication, billings and communication level message encryption </b> </br>
     <img width="20%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/Tensorflow-statistics.png"> </br>
     <b> Tensorflow statistics logging system </b> </br>
-    <b> Expaned image becuase of individual attactiveness </b>
+    <b> Expanded image becuase of individual attactiveness </b>
 </p>
