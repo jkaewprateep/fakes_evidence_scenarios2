@@ -59,3 +59,10 @@
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/power-series.png"> </br>
     <b> Power series detective solution </b>
 </p>
+
+🐨🎁🎵🎶 I recognized he had a smart case that may have come from the mission impossible and that is not only IVR accumulate counting money balance amount but facsimile communication as natural encryption message. </br>
+
+<p align="center" width="100%">
+    <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/encrypted%20communications.png"> </br>
+    <b> Natural encrypted communication, billings and communication level message encryption </b>
+</p>
