@@ -45,6 +45,7 @@
 💃( 👩‍🏫 )💬 That is because it is true logic and we do not modify the true logic or we need to rebuild them, development of ```protection responsive actions``` baed on this scenario is the zoning of ```sensitive information services``` inside the organization and ```routing services``` and ```instant response service``` to outside of the organization as attaches points with ```multiple secured communication methods```. By the ```business requirements``` expansion of branches, applications and auto-machine they develop of business competitive when also develop of ```secured communications```. </br>
 
 🧸💬 ```Not only authentication but stageless communication and secured communication reduced distributed message communication inside IT organized solution by half, sometimes distributed communications refer to unknown source destination or order message returns.``` </br>
+🦭💬 We can have a small application logic to find the order of communication and summing of message sequence order or summing of request references success output for IT networks monitoring, at the end of the day someone monitoring the system has responsibility assigned his allowance to system item communication and message generated to application owner for statistics and IT networks risks found in the solution. </br>
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/Bahaviour%20scenario.png"> </br>
