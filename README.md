@@ -10,6 +10,7 @@
 ## 🧸💬 Fake identity elevates to authorization
 
 🦭💬 There is a case when someone tries to ```refund your collections rewards from your purchases``` when you are not aware of it, this is an example of tasks of convincing the store to ```identify the identity and authorization``` of the customer and rewards claim 🐑💬 ➰. 🦭💬 It is not only the reward they claim but ```information identity``` some questions of identity verification are to protect against this kind of action but with unawareness someone claim on your ```ticket or incident``` when it is urgent and priority can perform some steps with authorized or ```find some information about you```. This is an example of the contact center in a shopping mall or ```information responsibilities``` including some government information center. </br>
+👤💬 There is concern when prank calls develop into fake identity calls and they can even develop further but it is hard to control by both sides of the purchasing and providing services. </br>
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/PASTA%20scenario.png"> </br>
