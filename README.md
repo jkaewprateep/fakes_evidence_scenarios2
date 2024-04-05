@@ -32,6 +32,8 @@
 
 ## 🧸💬 Known environment scenario
 
+🐐💬 IT networks activities, common programmers or computer experts know DNS servers, communication servers, and database servers but they do not know about the application workflow, security setup standards, connectivity, response policy, address, or identity when this information is used every day by IT administrator in the control room and some employees. How to protect this information from external users. There are many solutions that may suit your environment after policy such as naming conveniences, no temporary tables, secured, secured communications channels, virtual environment, action tracking, and authority levels responsiveness. </br>
+
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/Bahaviour%20scenario.png"> </br>
     <b> Known environment scenario </b>
