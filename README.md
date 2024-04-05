@@ -12,9 +12,9 @@
 🦭💬 There is a case when someone tries to ```refund your collections rewards from your purchases``` when you are not aware of it, this is an example of tasks of convincing the store to ```identify the identity and authorization``` of the customer and rewards claim 🐑💬 ➰. 🦭💬 It is not only the reward they claim but ```information identity``` some questions of identity verification are to protect against this kind of action but with unawareness someone claim on your ```ticket or incident``` when it is urgent and priority can perform some steps with authorized or ```find some information about you```. This is an example of the contact center in a shopping mall or ```information responsibilities``` including some government information center. </br>
 👤💬 ```There is concern when prank calls develop into fake identity calls and they can even develop further but it is hard to control by both sides of the purchasing and providing services```. </br>
 
-🐨🎁🎵🎶 I heard about the transfer rewards program and I can send it to you only ask for it correctly. </br>
+🐨🎁🎵🎶 ```I heard about the transfer rewards program and I can send it to you only ask for it correctly.``` </br>
 
-🧸💬 Some people who create actions make mistakes understanding them and forgiveness is considering that rewards are not amounts of money even they can transfer but the method to have of their identity or perform the action plan is not quite correct. Absolutely children are initially behaviors and they can be trained, develop skills and return of good benefits from their work when we support them in the future. </br>
+🧸💬 ```Some people who create actions make mistakes understanding them and forgiveness is considering that rewards are not amounts of money even they can transfer but the method to have of their identity or perform the action plan is not quite correct. Absolutely children are initially behaviors and they can be trained, develop skills and return of good benefits from their work when we support them in the future.``` </br>
 
 🐑💬 ➰ Who stole from my shopping mall shelves again I will transfer them to a hacker HAHAHA!!! </br>
 
