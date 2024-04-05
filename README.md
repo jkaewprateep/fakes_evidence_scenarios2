@@ -51,3 +51,10 @@
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/Bahaviour%20scenario.png"> </br>
     <b> Known environment scenario </b>
 </p>
+
+💃( 👩‍🏫 )💬 There are some examples of using power-series and I know some applications working in this scenario, he tried to build message detection to filters of distributed messages for organization by assignment to correct threads actions to the response. These are application-based scenarios by identifying of input and mapping to assign to the output, there are short-time effects, sequence actions effects, and instant effects and this method heddles best with the short-time action effects. </br>
+
+<p align="center" width="100%">
+    <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/power-series.png"> </br>
+    <b> Power series detective solution </b>
+</p>
