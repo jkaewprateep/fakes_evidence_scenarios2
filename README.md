@@ -14,7 +14,9 @@
 
 🐨🎁🎵🎶 I heard about the transfer rewards program and I can send it to you only ask for it correctly. </br>
 
-🧸💬 Some people who create actions make mistakes understanding them and forgiveness is considering that rewards are not amounts of money even they can transfer but the method to have of their identity or perform the action plan is not quite correct. Absolutely children are initially behaviors and they can be trained, development of skills and return of good benefits from their work when we supporting them in the future. </br>
+🧸💬 Some people who create actions make mistakes understanding them and forgiveness is considering that rewards are not amounts of money even they can transfer but the method to have of their identity or perform the action plan is not quite correct. Absolutely children are initially behaviors and they can be trained, develop skills and return of good benefits from their work when we support them in the future. </br>
+
+🐑💬 ➰ Who stole from my shopping mall shelves again I will transfer them to a hacker HAHAHA!!! </br>
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/PASTA%20scenario.png"> </br>
