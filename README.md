@@ -18,6 +18,8 @@
 
 🐑💬 ➰ Who stole from my shopping mall shelves again I will transfer them to a hacker HAHAHA!!! </br>
 
+🦤💬 Urgent case request is a priority and we have reasons to support about it, any case should be solved even they are purchasing products or not because the community are reflection of every person in the same area. The answer is always fixed even if you are not buying anything from the shopping mall. </br>
+
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/PASTA%20scenario.png"> </br>
     <b> Fake identity elevate to authorization </b>
