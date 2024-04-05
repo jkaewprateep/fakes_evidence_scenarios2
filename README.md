@@ -4,6 +4,7 @@
 🐯💬 Sometimes you can't judge from their uniform or dress but their ```working functions```, some areas of financial banking have protection levels they have ```sufficient response methods to protect belonging or process continuity``` inside the room or area they are responding to. Have you ever heard about the bulletproof control room for the working environment, there are many kinds of bulletproof and secure communication methods. </br>
 🐑💬 ➰ Go into it inside do you find any of a ```gold pot or saving gold ⁉️``` The secret of secure income and they like to watch the ```train rails of city construction wars is the same as selective assignment reading``` and everything has its origins </br>
 💃( 👩‍🏫 )💬 I will add something to this note, sometimes higher technologies create ```no contrast``` not only in the user manual and ```application adaptive compatibilities``` but fully trusting the technology may lead to ```wrong incident scenario assumption``` and making a judgment. For example, if customers drink a water bottle inside an ```automatic purchase convenience shop```, they improve the method by the initial point of products from the store's shelves, this kind of action makes it hard to prove that the ```customer's intention``` to do the incident in the ```short-term``` or they are an ```upsets employee```. </br>
+👧💬 🎈 Sometimes it is simpler and police know where to find the answers 🐑💬 ➰ . . . We are Chinese we are everywhere ... </br>
 
 ## 🧸💬 Fake identity elevates to authorization
 
