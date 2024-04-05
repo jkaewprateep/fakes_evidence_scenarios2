@@ -20,6 +20,7 @@
 
 🦤💬 Urgent case request is a priority and we have reasons to support about it, any case should be solved even they are purchasing products or not because the community are reflection of every person in the same area. The answer is always fixed even if you are not buying anything from the shopping mall. </br>
 💃( 👩‍🏫 )💬 Background working and after the issues were solved, we worked hard to identify the incident and how to protect the fake identity authorization. We found it is a random trial from the young generation but possibly led to this kind of action because, on the end of the phone line, there is no one control them or advice. Activities, Sports, Hobbies, and Part-time jobs help them not only income and save time for parenting their busy gradients but also train in working behaviors, community reactions, and safety response awareness can communicate in this time. </br> 
+🧸💬 Of course someone invented an idea 🔥🧑‍🚒🧑‍🚒 why don't we have a database of authorized people and we give them priority⁉️ 🐱💬 That is a great idea and possibility but the reason is not the mobility of the phone number and we treat people the same with authorization and community feedback also prevents fake identity drawbacks. </br>
 
 <p align="center" width="100%">
     <img width="40%" src="https://github.com/jkaewprateep/fakes_evidence_scenarios2/blob/main/PASTA%20scenario.png"> </br>
